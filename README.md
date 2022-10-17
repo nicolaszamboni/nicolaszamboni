@@ -1,4 +1,4 @@
-### Hi there 👋, meu nome é Nicolas Zamboni
+### Hi there 👋
 
 ##
 
